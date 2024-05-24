@@ -1,0 +1,5 @@
+![image](https://github.com/Zanvis/Kalkulator-obliczen/assets/161169953/1728744b-5bba-4bde-a9ac-052f654c79e0)
+![image](https://github.com/Zanvis/Kalkulator-obliczen/assets/161169953/8f82c1bd-1062-4783-96d8-896be677f878)
+![image](https://github.com/Zanvis/Kalkulator-obliczen/assets/161169953/da419932-621b-4784-a58d-925af7090a2b)
+![image](https://github.com/Zanvis/Kalkulator-obliczen/assets/161169953/827a5675-4b3c-40a1-9f92-30af52e5d44a)
+![image](https://github.com/Zanvis/Kalkulator-obliczen/assets/161169953/68a82b3b-481a-4d61-8e66-8b1521731537)
